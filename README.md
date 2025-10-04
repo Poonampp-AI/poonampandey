@@ -17,3 +17,5 @@ generated for tracking. Resulted in significant FTE savings.
 ### 📫 Reach me
 [LinkedIn](linkedin.com/in/poonam-pandey-3a5509180) · email: pandeypoonam1811@gmail.com
 
+### Open to work ###
+
